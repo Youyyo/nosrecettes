@@ -9,7 +9,6 @@
 
 ## Ingrédients
 
-### 
 
 * 300 gr de bœuf haché
 * 150 gr de fromage râpé
